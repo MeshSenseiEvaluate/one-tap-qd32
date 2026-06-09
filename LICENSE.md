@@ -1,4 +1,4 @@
-# 
+# Experience one tap like never before with smart Scripts for one tap, the #1 Script. Includes undetectable and speed for unbeatable performance.
 
 
 
